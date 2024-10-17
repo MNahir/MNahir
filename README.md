@@ -34,7 +34,7 @@
 
 Aspiro adquirir conocimientos valiosos 🧠, obtener experiencias enriquecedoras 🏭, colaborar de manera efectiva 🤝 y contribuir al desarrollo de productos innovadores para el mundo 🌎!
 
-## *💌Conectémonos:*
+## *💌Conectemos:*
 👩🏽‍💻 <a href="https://www.linkedin.com/in/nahir-maresca-63b028251/" >LinkedIn</a>
 
 📩 <a href="mailto:marescanahir18@gmail.com" >Correo electrónico</a>
